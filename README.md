@@ -1,1 +1,1 @@
-![Logo da LDN](logo-ldn.jpg)
+![Logo da LDN](IMG-20250419-WA0018.jpg)
